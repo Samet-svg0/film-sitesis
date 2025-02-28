@@ -19,4 +19,5 @@ Basit ve Şık Tasarım: Kullanıcı dostu, temiz bir görünüm ile estetik bir
 
 
 # Ekran goruntusu
-![bandicam2025-02-1300-05-02-244-ezgif com-video-to-gif-converter (1)](https://github.com/user-attachments/assets/ddf7be2e-4fb1-4420-8827-007bb71c517e)
+![bandicam2025-02-2823-25-39-963-ezgif com-crop (1)](https://github.com/user-attachments/assets/19aaad35-3148-4016-a6ae-2278c57178d5)
+
